@@ -1,0 +1,5 @@
+- Hi, I’m @Karim-Kabbara
+- I’m interested in creating basic code
+- I’m currently learning python 3
+- email me if you need anything or help
+- my gamming youtube channel: https://www.youtube.com/channel/UCjbnX5i98gzHA3vYqUoVpyg
